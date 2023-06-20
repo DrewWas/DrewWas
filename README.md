@@ -1,3 +1,1 @@
-- My insta is drew.was 
-
-VR. AI. BMIs. Design. Structures.
+Towards the High Frontier
